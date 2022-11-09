@@ -1,1 +1,1 @@
-Chanakang
+Chanakan
